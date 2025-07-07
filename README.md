@@ -25,4 +25,4 @@ AV01：画质较高，部分影片含中文字幕；
 
 Reddit – r/JAV：真实用户分享资源合集与观看链接，互动性强。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hjl678/44523 ）</span>
